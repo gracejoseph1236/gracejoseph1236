@@ -1,0 +1,4 @@
+- Hi, I’m @gracejoseph1236
+- I’m interested in Child of Light, Stardew Valley, Undertale, Gris, and many other games
+- I’m currently learning about LYT or Linking your Thinking
+- I’m looking to collaborate on nothing atm
