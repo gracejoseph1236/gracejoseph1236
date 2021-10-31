@@ -1,3 +1,1 @@
 - Hi, I’m @Piglet1236
-- I’m interested in Child of Light, Stardew Valley, Undertale, Gris, and many other games
-- I’m looking to collaborate on nothing atm
